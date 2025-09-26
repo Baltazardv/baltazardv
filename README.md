@@ -1,4 +1,4 @@
-![Banner](URL-del-banner-personalizado)
+![Banner](https://ibb.co/ZzTtnm1t)
 
 # Hola, soy Baltazar Dimayuga 👋
 
