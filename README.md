@@ -1,4 +1,4 @@
-<a href="https://ibb.co/ZzTtnm1t"><img src="https://i.ibb.co/B2sdXNKd/unnamed-1.png" alt="unnamed-1" border="0"></a>
+<a href="https://ibb.co/GvsbCV4t"><img src="https://i.ibb.co/Fbsj8BL0/unnamed-1.png" alt="unnamed-1" border="0"></a>
 
 # Hola, soy Baltazar Dimayuga 👋
 
