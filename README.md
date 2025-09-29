@@ -1,4 +1,4 @@
-<a href="https://ibb.co/99ZYBVmc"><img src="https://i.ibb.co/d0mKXLsj/unnamed-1.png" alt="unnamed-1" border="0"></a>
+<a href="https://ibb.co/1fFZ8DRF"><img src="https://i.ibb.co/4ZhWP64h/Imagen-de-Whats-App-2025-09-28-a-las-21-11-31-7cab4761-1.jpg" alt="Imagen-de-Whats-App-2025-09-28-a-las-21-11-31-7cab4761-1" border="0"></a>
 
 # Hola, soy Baltazar Dimayuga 👋
 
