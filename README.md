@@ -6,7 +6,7 @@
 
 > Transformando datos en decisiones estratégicas desde Guerrero, México
 
-### 👇 [Ver proyectos destacados ↓](#-proyectos-destacados)
+### 👇 [Ver proyectos destacados ↓(#-proyectos-destacados)]
 
 ---
 
