@@ -68,7 +68,7 @@
 ### 📫 Conectemos
 - 💼 **LinkedIn:** [baltazar-dimayuga](https://linkedin.com/in/baltazar-dimayuga)
 - 📧 **Email:** baltazardv13@gmail.com
-- 🌐 **Portfolio:** [En construcción]
+- 🌐 **Portfolio:** (https://github.com/Baltazardv/data-portfolio)
 
 ---
 ⭐ **"Los datos son el nuevo petróleo, pero los insights son el refinado"** ⭐
