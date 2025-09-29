@@ -4,9 +4,9 @@
 
 ## 📊 Data Analyst Jr | Business Intelligence Specialist
 
-> Transformando datos en decisiones estratégicas desde Guerrero, México
+> Transformando datos en decisiones estratégicas
 
-### 👇 [[Ver proyectos destacados ↓](#-proyectos-destacados)]]
+### 👇 [Ver proyectos destacados ↓](#-proyectos-destacados)
 
 ---
 
